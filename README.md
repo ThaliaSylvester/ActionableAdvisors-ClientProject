@@ -11,5 +11,3 @@ We remain dedicated to delivering a solution aligned with furthering the church'
 
 Sincerely,
 Actionable Advisors
-![image](https://github.com/user-attachments/assets/6c633349-2877-4279-ba58-d3a746b9ef93)
-
